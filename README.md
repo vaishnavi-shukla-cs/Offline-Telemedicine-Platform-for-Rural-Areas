@@ -1,0 +1,1 @@
+# Offline-Telemedicine-Platform-for-Rural-Areas
